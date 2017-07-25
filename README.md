@@ -3,4 +3,4 @@
 
 **je n'ai rien d'_intéressant_ à dire**
 
-[Allez là-bas!] (https://modisfrance.fr)
+[Allez là-bas!] (http://www.modisfrance.fr/)
